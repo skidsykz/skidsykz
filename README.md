@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @skidsykz, or just sykz
+- 👀 I’m interested in a lot of stuff, I get easily distracted
+- 🌱 I’m currently learning python and java
+- 💞️ I’m looking to collaborate on some projects where I can learn hands-on
+- 📫 How to reach me, discord sykz#3699
