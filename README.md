@@ -2,4 +2,4 @@
 - I’m interested in a lot of stuff, I get easily distracted
 - I’m currently learning python and maybe want to learn go or something
 - I’m looking to collaborate on some projects where I can learn hands-on, but I havent recently had the time
-- How to reach me, discord sykz#0909
+- How to reach me, discord sykz#0342
